@@ -12,3 +12,6 @@ Hottest day of the year today and it's my 1st day at work.
 ## Keith:
 Not so hot in the afternoon in Felinheli and it will get cooler 
 throughout the day
+
+# Daf's day
+Thoroughly enjoyed my 1st day at work
